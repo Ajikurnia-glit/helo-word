@@ -1,0 +1,2 @@
+# helo-word
+aji kurnia
